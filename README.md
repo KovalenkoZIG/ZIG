@@ -1,0 +1,2 @@
+# ZIG
+KRIPTO
